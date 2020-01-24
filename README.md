@@ -35,6 +35,5 @@
 - Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.
 
 ### References:
-> Images source from [Youtube](https://www.youtube.com/)
-
-> Information from webiste [Learng2](https://learn.g2.com/most-subscribed-youtubers)
+*Images source from [Youtube](https://www.youtube.com/)*
+*Information from webiste [Learng2](https://learn.g2.com/most-subscribed-youtubers)*
