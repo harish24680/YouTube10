@@ -5,15 +5,12 @@
 * Coming in hot as the most subscribed YouTube channel is T-Series, India’s largest music label and movie studio. Their official slogan is: “Music can change the world,” and they have the belief that they’re bringing the world closer together through music.
 2. [PewDiePie](https://www.youtube.com/user/PewDiePie): 102 million subscribers
 ![](https://yt3.ggpht.com/a/AGF-l79FVckie4j9WT-4cEW6iu3gPd4GivQf_XNSWg=s176-c-k-c0x00ffffff-no-rj-mo)
-> Image source from YouTube
 - Sitting pretty at number two is PewDiePie. The channel is run by Swedish comedian Felix Arvid Ulf Kjellberg, and is best known for the “Let’s Play” gaming videos and blogs. During his early YouTube career, his commentaries of horror games were his best-known content before expanding to other video genres, such as vlogs and comedy shorts. His content is certainly not for the faint of heart as it’s often filled with profanity.
 3. [Cocomelon - Nursery Rhymes](https://www.youtube.com/user/checkgate): 71 million subscribers
 ![](https://yt3.ggpht.com/a/AGF-l7_Ig-3kRzbVXf3NRh3XWDFVyzXRANCQsltkvQ=s176-c-k-c0x00ffffff-no-rj-mo)
-> Image source from YouTube
 - From the controversial to the tame, the third most subscribed YouTube channel goes to Cocomelon - Nursery Rhymes. Founded in 2005, this YouTube account creates content for children with the goal of making learning a fun and enjoyable experience with 3D animation, education lyrics, and catchy music.
 4. [5-Minute Crafts](https://www.youtube.com/channel/UC295-Dw_tDNtZXFeAPAW6Aw): 63.6 million subscribers
 ![](https://yt3.ggpht.com/a/AGF-l7_Ig-3kRzbVXf3NRh3XWDFVyzXRANCQsltkvQ=s176-c-k-c0x00ffffff-no-rj-mo)
-> Image source from YouTube
 - For all of the hacks you’ll ever need, plus DIY projects and crafts, check out number four on the list: 5-Minute Crafts.
 - Launched fewer than three years ago, this how-to channel has nearly 3,000 videos for both parents and children alike. Their videos range from magic tricks to beauty and life hacks, and even breaks down some educational science experiments.
 5. [SET India](https://www.youtube.com/user/setindia): 63 million subscribers
@@ -36,4 +33,4 @@
 10. [Dude Perfect](https://www.youtube.com/user/corycotton): 48.7 million subscriber
 ![](https://yt3.ggpht.com/a/AGF-l786MhSiIQO2jrdpXgwwZxlJdThr1uRZhG0MYQ=s176-c-k-c0x00ffffff-no-rj-mo)
 - Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.
-# Commit25
+# Commit29
