@@ -17,23 +17,22 @@
 - Standing for Sony Entertainment Television, SET India is number five on the list of most-subscribed YouTube channels. This Hindi-language channel mainly consists of full episodes of television shows, teaser trailers, and clips of various episodes.  
 ![](https://yt3.ggpht.com/a/AGF-l7_rrvu2vunZ4PEZ0fXnz78RaMK11j-Qrv1KZw=s176-c-k-c0x00ffffff-no-rj-mo)
 6. [Canal KondZilla](https://www.youtube.com/user/CanalKondZilla): 55 million subscribers
+- Going back to music, at number six we have Canal KondZilla. This channel is run by Konrad Cunha Dantas, a Brazilian music producer who owns KondZilla Records. He’s also a writer and director of over 700 music videos.  
 ![](https://yt3.ggpht.com/a/AGF-l7-yDi06ROcOe64yy81sU0pFKJUr7pyqyxXAgg=s176-c-k-c0x00ffffff-no-rj-mo)
-- Going back to music, at number six we have Canal KondZilla. This channel is run by Konrad Cunha Dantas, a Brazilian music producer who owns KondZilla Records. He’s also a writer and director of over 700 music videos.
 7. [WWE](https://www.youtube.com/channel/UCJ5v_MCY6GNUBTO8-D3XoAg): 53.8 million subscribers
+- If you’re ready for a smackdown then you'll love that the seventh most-subscribed to YouTube channel is the WWE, also known as World Wrestling Entertainment.  
+- Fans of this channel can watch episodes of Monday Night Raw, TV’s longest-running weekly program. There’s also behind the scenes footage of SmackDown LIVE, classic fights, historic interviews, and more.  
 ![](https://yt3.ggpht.com/a/AGF-l7-JXrgTbV0Df7gzTZTTGi53X5pejNnn42R09g=s176-c-k-c0x00ffffff-no-rj-mo)
-- If you’re ready for a smackdown then you'll love that the seventh most-subscribed to YouTube channel is the WWE, also known as World Wrestling Entertainment.
-- Fans of this channel can watch episodes of Monday Night Raw, TV’s longest-running weekly program. There’s also behind the scenes footage of SmackDown LIVE, classic fights, historic interviews, and more.
 8. [Zee Music Company](https://www.youtube.com/user/zeemusiccompany): 49.3 million subscribers
+- Rounding out the top 10 is most music. Zee Music Company is part of India’s leading television and entertainment companies, in addition to being amongst one of the largest producers of Hindi programming in the world.  
 ![](https://yt3.ggpht.com/a/AGF-l7-o-FQ4aEdqCMNlLpCqpeF2kTtgTP33V8X5-g=s176-c-k-c0x00ffffff-no-rj-mo)
-- Rounding out the top 10 is most music. Zee Music Company is part of India’s leading television and entertainment companies, in addition to being amongst one of the largest producers of Hindi programming in the world.
 9. [Justin Bieber](https://www.youtube.com/user/kidrauhl): 49 million subscribers
-![](https://lh3.googleusercontent.com/a-/AAuE7mD2KkT_7ftpRJpH_n6ZNeSJFvFlgRGqNcoOzq4q=s176-c-k-c0x00ffffff-no-rj-mo)
 - Whether you love him or you hate him, I’m here to tell you that Justin Bieber is the eighth most subscribed to YouTube channel.
-- After posting dozens of homemade videos back in 2007, Bieber rapidly went from a cute 12-year old Canadain singing on the sidewalk with an acoustic guitar to a megastar and a Grammy winner. Not surprisingly, his channel features music videos, live performances, and interviews.
+- After posting dozens of homemade videos back in 2007, Bieber rapidly went from a cute 12-year old Canadain singing on the sidewalk with an acoustic guitar to a megastar and a Grammy winner. Not surprisingly, his channel features music videos, live performances, and interviews.  
+![](https://lh3.googleusercontent.com/a-/AAuE7mD2KkT_7ftpRJpH_n6ZNeSJFvFlgRGqNcoOzq4q=s176-c-k-c0x00ffffff-no-rj-mo)
 10. [Dude Perfect](https://www.youtube.com/user/corycotton): 48.7 million subscriber
-![](https://yt3.ggpht.com/a/AGF-l786MhSiIQO2jrdpXgwwZxlJdThr1uRZhG0MYQ=s176-c-k-c0x00ffffff-no-rj-mo)
-- Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.
-
+- Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.  
+![](https://yt3.ggpht.com/a/AGF-l786MhSiIQO2jrdpXgwwZxlJdThr1uRZhG0MYQ=s176-c-k-c0x00ffffff-no-rj-mo)  
 ### References:
 * *Images source from [Youtube](https://www.youtube.com/)*  
 * *Information from webiste [Learng2](https://learn.g2.com/most-subscribed-youtubers)*
