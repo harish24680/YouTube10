@@ -10,7 +10,7 @@
 1. Zee Music Company
 1. Justin Bieber
 1. Dude Perfect
-### About:
+## About Channels:
 1. [T-Series](https://www.youtube.com/user/tseries): 126 million subscribers  
 * Coming in hot as the most subscribed YouTube channel is T-Series, India’s largest music label and movie studio. Their official slogan is: “Music can change the world,” and they have the belief that they’re bringing the world closer together through music.  
 ![Source](https://yt3.ggpht.com/a/AGF-l7_pAUMBrwUj9lIAPzwKL1MKmb9q875ck73n2Q=s176-c-k-c0x00ffffff-no-rj-mo)
@@ -44,6 +44,6 @@
 10. [Dude Perfect](https://www.youtube.com/user/corycotton): 48.7 million subscriber
 - Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.  
 ![](https://yt3.ggpht.com/a/AGF-l786MhSiIQO2jrdpXgwwZxlJdThr1uRZhG0MYQ=s176-c-k-c0x00ffffff-no-rj-mo)  
-## References:
+### References:
 * *Images source from [Youtube](https://www.youtube.com/)*  
 * *Information from webiste [Learng2](https://learn.g2.com/most-subscribed-youtubers)*
