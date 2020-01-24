@@ -1,7 +1,7 @@
 # Top 10 YouTube channels in WorldWide
 ##10 Most-Subscribed to YouTube Channels:
 1. [T-Series](https://www.youtube.com/user/tseries): 121 million subscribers
-Coming in hot as the most subscribed YouTube channel is T-Series, India’s largest music label and movie studio. Their official slogan is: “Music can change the world,” and they have the belief that they’re bringing the world closer together through music.
+* Coming in hot as the most subscribed YouTube channel is T-Series, India’s largest music label and movie studio. Their official slogan is: “Music can change the world,” and they have the belief that they’re bringing the world closer together through music.
 2. PewDiePie: 102 million subscribers
 - Sitting pretty at number two is PewDiePie. The channel is run by Swedish comedian Felix Arvid Ulf Kjellberg, and is best known for the “Let’s Play” gaming videos and blogs. During his early YouTube career, his commentaries of horror games were his best-known content before expanding to other video genres, such as vlogs and comedy shorts. His content is certainly not for the faint of heart as it’s often filled with profanity.
 3. Cocomelon - Nursery Rhymes: 67 million subscribers
