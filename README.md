@@ -42,7 +42,7 @@
 - Whether you love him or you hate him, I’m here to tell you that Justin Bieber is the eighth most subscribed to YouTube channel.
 - After posting dozens of homemade videos back in 2007, Bieber rapidly went from a cute 12-year old Canadain singing on the sidewalk with an acoustic guitar to a megastar and a Grammy winner. Not surprisingly, his channel features music videos, live performances, and interviews.  
 ![](https://lh3.googleusercontent.com/a-/AAuE7mD2KkT_7ftpRJpH_n6ZNeSJFvFlgRGqNcoOzq4q=s176-c-k-c0x00ffffff-no-rj-mo)
-1. [Dude Perfect](https://www.youtube.com/user/corycotton): 48.7 million subscriber
+1. [Dude Perfect](https://www.youtube.com/user/corycotton): 48.7 million subscribers
 - Calling themselves “5 Best Friends and a Panda,” the comedy sports group Dude Perfect takes the ninth spot of most-subscribed to YouTube channels.  
 ![](https://yt3.ggpht.com/a/AGF-l786MhSiIQO2jrdpXgwwZxlJdThr1uRZhG0MYQ=s176-c-k-c0x00ffffff-no-rj-mo)  
 ### References:
